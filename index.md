@@ -26,26 +26,26 @@ International migration patterns, sustainable sourcing, closed-loop supply chain
 ## Professional Experience
 
 `May 2018-Present`
-__Premier Manufacturing__, _Buyer_
+__Premier Manufacturing,__ _Buyer_
 
 ## Education
 
 `2013-2017`
-__The Ohio State University, Columbus, OH__ <br/>
+__The Ohio State University,__ Columbus, OH <br/>
 Bachelors of Science in Business Administration <br/>
 Specialization: Logistics Management, GPA: 3.702
 
 `2017-2018`
-__The University of Pittsburgh, Pittsburgh PA__ <br/>
+__The University of Pittsburgh,__ _Pittsburgh PA_ <br/>
 Master of Science in Supply Chain Management, GPA: 3.675
 
 
 ## Graduate Experience
 `January 2018-April 2018`
-__The University of Pittsburgh, Graduate Teaching Assistant__
+__The University of Pittsburgh,__ _Graduate Teaching Assistant_
 
 `October 2017-April 2018`
-__Logistics Coordinator, Thread International__
+__Thread International,__ _Logistics Coordinator_
 
 `September 2017-December 2017`
-__TruFood Manufacturing, Six Sigma Student Consultant__
+__TruFood Manufacturing,__ _Six Sigma Student Consultant_
