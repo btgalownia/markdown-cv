@@ -26,18 +26,18 @@ International migration patterns, sustainable sourcing, closed-loop supply chain
 ## Professional Experience
 
 `May 2018-Present`
-__Premier Manufacturing, Buyer__
+__Premier Manufacturing__, _Buyer_
 
 ## Education
 
 `2013-2017`
-__The Ohio State University, Columbus, OH__<br/>
-__Bachelors of Science in Business Administration__<br/>
-__Specialization: Logistics Management, GPA: 3.702__
+__The Ohio State University, Columbus, OH__ <br/>
+Bachelors of Science in Business Administration <br/>
+Specialization: Logistics Management, GPA: 3.702
 
 `2017-2018`
-__The University of Pittsburgh, Pittsburgh PA__<br/>
-__Master of Science in Supply Chain Management, GPA: 3.675__
+__The University of Pittsburgh, Pittsburgh PA__ <br/>
+Master of Science in Supply Chain Management, GPA: 3.675
 
 
 ## Graduate Experience
